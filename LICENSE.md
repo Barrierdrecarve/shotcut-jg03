@@ -1,4 +1,4 @@
-# 
+# 最佳 Adobe Premiere Pro PC版 扩展 是最佳 Adobe Premiere Pro PC版 扩展，集成 淡入淡出 和 关键帧动画。安全、可靠、优化，性能最大化。
 
 
 
